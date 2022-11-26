@@ -1,0 +1,7 @@
+# COMP9318 Data Warehousing and Data Mining
+# 加微信 powcoder
+
+# Programming Help Add Wechat powcoder
+
+# Email: powcoder@163.com
+
